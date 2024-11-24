@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Noahu00
+- 👀 I’m interested in Learning new things
+- 🌱 I’m currently learning Type Script
+- 😄 Pronouns: he/him
